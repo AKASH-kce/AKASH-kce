@@ -12,16 +12,8 @@ Seeking a challenging position in a reputed organization where I can learn new s
 ## 📚 Education  
 
 - **Karpagam College of Engineering** (2021–2025)  
-  B.Tech - Information Technology: **7.9 CGPA** (Up to 5th Semester)  
+  B.Tech - Information Technology, 
   Coimbatore, Tamil Nadu  
-
-- **Marutham Matric Higher Secondary School** (2020–2021)  
-  HSC: **90%**  
-  Dharmapuri, Tamil Nadu  
-
-- **Mullai Matric Higher Secondary School** (2018–2019)  
-  SSLC: **93%**  
-  Dharmapuri, Tamil Nadu  
 
 ---
 
